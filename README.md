@@ -131,7 +131,7 @@ I am currently focusing on:
 ## 📫 Contact
 
 - GitHub: [AKAPhilipD](https://github.com/AKAPhilipD)
-- Email: 1013778449@qq.com
+- Email: dongshihe030@163.com
 
 ---
 
